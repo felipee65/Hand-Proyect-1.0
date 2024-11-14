@@ -1,1 +1,0 @@
-# Hand-Proyect-1.0
